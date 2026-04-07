@@ -1,5 +1,5 @@
 # About me
-- 💕 I’m interested in BTS, flower language and fashion
+- 💕 I’m interested in BTS, Fleetwood Mac and fashion
 - 🌱 I'm currently learning SQL and Pyhton 
 - 📫 How to reach me ig @hanalog_6459
 - ✨ Pronouns: she/her
